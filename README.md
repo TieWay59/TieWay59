@@ -3,7 +3,7 @@
 ### Hi, I'm Tie. 👋
 
 
-- 🌱 I’m a s▇▇▇▇r student at Z▇▇▇▇▇▇▇ N▇▇▇▇▇ University, majoring in ~~Firting~~ S▇▇▇▇▇▇▇▇▇ E▇▇▇▇▇▇▇▇▇▇. 
+- 🌱 I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in Firting. 
 - 🏗 Focus on ▇
 - ⚡ Main projects: 
   - ▇
