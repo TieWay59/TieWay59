@@ -8,4 +8,3 @@
 - ⚡ Main projects: 
   - ▇
 - 💬 WeChat: t▇▇▇▇▇▇9
-- 📫 Ping me by [mail](tomail:tieway59@foxmail.com)
