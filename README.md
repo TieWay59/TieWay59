@@ -2,9 +2,10 @@
 
 ### Hi, I'm Tie. 👋
 
-🌱 I’m a <span style="background-color:black;">senior</span> student at  <span style="background-color:black;">ZJNU</span>, majoring in Firting<span style="background-color:black;">SE</span>. 
-- 🏗 Focus on <span style="background-color:black;">unshown</span>
+
+- 🌱 I’m a s▇▇▇▇r student at Z▇▇▇▇▇▇▇ N▇▇▇▇▇ University, majoring in ~~Firting~~ S▇▇▇▇▇▇▇▇▇ E▇▇▇▇▇▇▇▇▇▇. 
+- 🏗 Focus on ▇
 - ⚡ Main projects: 
-  - <span style="background-color:black;">not prepared</span>
-- 💬 WeChat: <span style="background-color:black;">tieway59</span>
+  - ▇
+- 💬 WeChat: t▇▇▇▇▇▇9
 - 📫 Ping me by [mail](tomail:tieway59@foxmail.com)
