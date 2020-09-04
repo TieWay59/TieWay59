@@ -2,7 +2,7 @@
 
 ### Hi, I'm Tie. 👋
 
-- 🌱 I’m a <span style="background-color:black;">senior</span> student at  <span style="background-color:black;">ZJNU</span>, majoring in Firting<span style="background-color:black;">SE</span>. 
+🌱 I’m a <span style="background-color:black;">senior</span> student at  <span style="background-color:black;">ZJNU</span>, majoring in Firting<span style="background-color:black;">SE</span>. 
 - 🏗 Focus on <span style="background-color:black;">unshown</span>
 - ⚡ Main projects: 
   - <span style="background-color:black;">not prepared</span>
