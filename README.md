@@ -3,7 +3,7 @@
 ### Hi, I'm Tie. 👋
 
 
-- 🌱 I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in Firting. 
+- 🌱 I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in flirting. 
 - 🏗 Focus on ▇
 - ⚡ Main projects: 
   - ▇
