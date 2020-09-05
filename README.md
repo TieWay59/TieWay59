@@ -2,6 +2,7 @@
 
 ### Hi, I'm Tie. 👋
 
+```plaintext
 
 - 🌱 I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in flirting. 
 - 🏗 Focus on pornographic jokes.
@@ -10,3 +11,5 @@
     - Saddly, the answer is no, it dosen't helps.
     - And in some cases, even your AI knows you better than your mate.
 - 💬 WeChat: t▇▇▇▇▇▇9
+
+```
