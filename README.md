@@ -4,7 +4,9 @@
 
 
 - 🌱 I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in flirting. 
-- 🏗 Focus on ▇
+- 🏗 Focus on pornographic jokes.
 - ⚡ Main projects: 
-  - ▇
+  - "Will Machine Learning helps making love happen on you?" 
+    - Saddly, the answer is no, it dosen't helps.
+    - And in some cases, even your AI knows you better than your mate.
 - 💬 WeChat: t▇▇▇▇▇▇9
