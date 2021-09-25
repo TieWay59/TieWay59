@@ -4,11 +4,9 @@
 ### Hi, I'm Tie. 👋
 
 
-- I’m a student at ▇▇▇▇▇▇▇▇ ▇▇▇▇▇▇ University, majoring in flirting. 
-- Focus on pornographic jokes.
-- Main projects: 
-  - "Will Machine Learning helps making love happen on you?" 
-    - Saddly, the answer is no, it dosen't helps.
-    - And in some cases, even your AI knows you better than your mate.
-- 💬 WeChat: t▇▇▇▇▇▇9
+- I’m a student at East China Normal University, majoring in flirting. 
+- Focus on ML on Graph and OSS.
+- 💬 WeChat: tieway59
+- 💭 QQ: tieway59
+- 💌 mail: tieway59@foxmail.com
 
