@@ -5,7 +5,6 @@
 
 
 - I’m a student at East China Normal University, majoring in flirting. 
-- Focus on ML on Graph and OSS.
 - 💬 WeChat: tieway59
 - 💭 QQ: tieway59
 - 💌 mail: tieway59@foxmail.com
