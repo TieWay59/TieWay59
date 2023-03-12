@@ -7,4 +7,3 @@
 - 💭 QQ: tieway59
 - 💌 mail: tieway59@foxmail.com
 
-[![profile-3d](./profile-3d-contrib/profile-season-animate.svg)](https://github.com/yoshi389111/github-profile-3d-contrib)
