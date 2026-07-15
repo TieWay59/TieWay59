@@ -2,8 +2,8 @@
 
 ### Hi, I'm Tie. 👋
 
-- I’m a student at East China Normal University, majoring in flirting.
-- 💬 WeChat: tieway59
+- I’m a student at East China Normal University.
+- 💬 WeChat: wutaiwei1984
 - 💭 QQ: tieway59
 - 💌 mail: tieway59@foxmail.com
 
